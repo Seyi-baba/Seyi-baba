@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Web 3
 - 💞️ I’m looking to collaborate on Web 3
 - 📫 How to reach me jtseyiemmaunuel@gmail.com
-- 😄 Pronouns: hee
+- 😄 Pronouns: he
 - ⚡ Fun fact: I am nice
 
 <!---
